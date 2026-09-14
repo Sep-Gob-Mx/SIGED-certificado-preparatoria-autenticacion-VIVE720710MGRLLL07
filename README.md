@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VIVE720710MGRLLL07
+VIVE720710MGRLLL07
